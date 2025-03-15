@@ -29,7 +29,6 @@
   <br />
 </p>
 <p align="center">
-    <picture>https://i.ibb.co/tMh60zQ3/hooray.png</picture>
   <img src="https://i.ibb.co/tMh60zQ3/hooray.png"/>
   <br />
     </p>
