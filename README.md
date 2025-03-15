@@ -11,7 +11,7 @@
     $${\color{#ed231c}“Yeah.”}$$
     <br /> <br />
   </sub> </i>
-        ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ★
+      ★<br />
     <picture>https://i.ibb.co/d4YkxDfD/Untitled37-20250315134027.png</picture>
   <img src="https://i.ibb.co/d4YkxDfD/Untitled37-20250315134027.png"/>
   <br />
@@ -28,7 +28,7 @@
  ★
   <br />
 </p>
-<p align="left">
+<p align="center">
     <picture>https://i.ibb.co/tMh60zQ3/hooray.png</picture>
   <img src="https://i.ibb.co/tMh60zQ3/hooray.png"/>
   <br />
