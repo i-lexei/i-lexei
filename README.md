@@ -20,6 +20,7 @@
     <h1> <p align="center"> hello!! i'm lexei :3 </h1>
 <p align="center">
     <br />
+    ➼ you can also call me lex or the name of whatever cos i am using! <br />
     ➼ current big interests: forsaken, cookie run kingdom, phighting <br />
     ➼ i love all things roblox so ask me if i know a game you like! <br />
     ➼ im usually seen in my elliot, wind archer cookie, or jesterspace cosplays!! <br />
