@@ -18,14 +18,14 @@
   ·͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙ ·͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙ ·͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙ ·͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙ 
   <br /> <br /> </p>
     <h1> <p align="center"> hello!! i'm lexei :3 </h1>
-<p align="center">
+<p align="left">
     <br />
     ➼ current big interests: forsaken, cookie run kingdom, phighting <br />
     ➼ i love all things roblox so ask me if i know a game you like! <br />
     ➼ im usually seen in my elliot, wind archer cookie, or jesterspace cosplays!! <br />
     ➼ lalalalalala
     <br /><br />
- ★
+ <p align="center">★ </p>
   <br />
 </p>
 <p align="center">
