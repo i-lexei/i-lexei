@@ -24,6 +24,7 @@
     ➼ current big interests: forsaken, cookie run kingdom, phighting <br />
     ➼ i love all things roblox so ask me if i know a game you like! <br />
     ➼ im usually seen in my elliot, wind archer cookie, or jesterspace cosplays!! <br />
+    ➼ do not copy my skins + pls ask for inspo! <br />
     ➼ lalalalalala
     <br /><br />
  ★
