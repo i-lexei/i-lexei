@@ -12,8 +12,8 @@
     <br /> <br />
   </sub> </i>
       ★<br />
-    <picture>https://i.ibb.co/d4YkxDfD/Untitled37-20250315134027.png</picture>
-  <img src="https://i.ibb.co/d4YkxDfD/Untitled37-20250315134027.png"/>
+    <picture>https://i.ibb.co/fGYG2Cww/Untitled37-20250324181631.webp</picture>
+  <img src="https://i.ibb.co/fGYG2Cww/Untitled37-20250324181631.webp"/>
   <br />
   ·͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙ ·͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙ ·͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙ 
   <br /> <br /> </p>
@@ -38,6 +38,6 @@
 <B>COLLECT MY FRIENDS!!</B>
   <br /> <br /> <br />
   ☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆ ☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆<br />
-  <sub>✿credits: st4ngray, HiKleo69609, aamx1i✿</sub>
+  <sub>✿credits: kelcair, st4ngray, HiKleo69609, aamx1i✿</sub>
   
 </p>
