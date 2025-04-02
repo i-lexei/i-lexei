@@ -25,6 +25,8 @@
     ➼ i love all things roblox so ask me if i know a game you like! <br />
     ➼ im usually seen in my elliot, wind archer cookie, fire spirit cookie, or jesterspace cosplays!! <br />
     ➼ do not copy my skins + pls ask for inspo! <br />
+    ➼ c+h is very very welcome!! i love cuddles!!!! <br />
+    ➼ check out my strawpage for a bit more info abt me- and maybe leave a gimmick? :3 <br />
     ➼ lalalalalala
     <br /><br />
  ★
