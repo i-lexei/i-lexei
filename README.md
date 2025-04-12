@@ -20,7 +20,7 @@
 <p align="center">
     <br />
     ➼ you can also call me lex or the name of whatever cos i am using! <br />
-    ➼ current big interests: forsaken, cookie run kingdom, limbus company, phighting <br />
+    ➼ current big interests: limbus company, forsaken, cookie run kingdom, phighting <br />
     ➼ i love all things roblox so ask me if i know a game you like! <br />
     ➼ do not copy my skins + pls ask for inspo! <br />
     ➼ c+h is very very welcome!! i love cuddles!!!! <br />
