@@ -12,8 +12,7 @@
     <br /> <br />
   </sub> </i>
       ★<br />
-    <picture>https://i.ibb.co/fGYG2Cww/Untitled37-20250324181631.webp</picture>
-  <img src="https://i.ibb.co/fGYG2Cww/Untitled37-20250324181631.webp"/>
+  <img src="https://i.ibb.co/7dgVddDS/Untitled60-20250412181108.png"/>
   <br />
   ·͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙ ·͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙ ·͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙ 
   <br /> <br /> </p>
@@ -39,6 +38,6 @@
 <B>COLLECT MY FRIENDS!!</B>
   <br /> <br /> <br />
   ☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆ ☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆<br />
-  <sub>✿credits: deepseawav, astertude, st4ngray, HiKleo69609, aamx1i✿</sub>
+  <sub>✿credits: chayre5792, sinmllk, st4ngray, HiKleo69609, aamx1i✿</sub>
   
 </p>
