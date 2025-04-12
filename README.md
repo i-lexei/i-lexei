@@ -39,6 +39,6 @@
 <B>COLLECT MY FRIENDS!!</B>
   <br /> <br /> <br />
   ☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆ ☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆<br />
-  <sub>✿credits: deepseawav, kelcair, st4ngray, HiKleo69609, aamx1i✿</sub>
+  <sub>✿credits: deepseawav, astertude, st4ngray, HiKleo69609, aamx1i✿</sub>
   
 </p>
