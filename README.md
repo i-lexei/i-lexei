@@ -25,6 +25,8 @@
     ➼ do not copy my skins + pls ask for inspo! <br />
     ➼ c+h is very very welcome!! i love cuddles!!!! <br />
     ➼ check out my strawpage for a bit more info abt me- and maybe leave a gimmick? you can also sign my atabook! :3<br />
+    ➼ desperately looking for limbus friends since I only have like. one or two ☹️ feel free to int! <br />
+    ➼ w2i preferred since i am offtab most of the time <br />
     ➼ lalalalalala
     <br /><br />
  ★
