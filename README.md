@@ -40,6 +40,6 @@
 <B>COLLECT MY FRIENDS!!</B>
   <br /> <br /> <br />
   ☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆ ☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆<br />
-  <sub>✿credits: chayre5792, sinmllk, st4ngray, HiKleo69609, aamx1i✿</sub>
+  <sub>✿credits: sinmllk, lemon_mango1 (?), st4ngray, HiKleo69609, aamx1i✿</sub>
   
 </p>
