@@ -19,14 +19,16 @@
     <h1> <p align="center"> hello!! i'm lexei :3 </h1>
 <p align="center">
     <br />
-    ➼ you can also call me lex or the name of whatever cos i am using! <br />
-    ➼ current big interests: <b>limbus company</b>, forsaken, cookie run kingdom, phighting <br />
-    ➼ i love all things roblox so ask me if i know a game you like! <br />
-    ➼ do not copy my skins + pls ask for inspo! <br />
-    ➼ c+h is very very welcome!! i love cuddles!!!! <br />
-    ➼ check out my strawpage for a bit more info abt me- and maybe leave a gimmick? you can also sign my atabook! :3<br />
-    ➼ desperately looking for limbus friends since I only have like. one or two ☹️ feel free to int! <br />
-    ➼ w2i preferred since i am offtab most of the time <br />
+    ➼ you can also call me lex or the name of whatever cos i am using! <br /><br />
+    ➼ current big interests: <b>limbus company</b>, forsaken, cookie run kingdom, phighting <br /><br />
+    ➼ i love all things roblox so ask me if i know a game you like! <br /><br />
+    ➼ do not copy my skins + pls ask for inspo! <br /><br />
+    ➼ c+h is very very welcome!! i love cuddles!!!! <br /><br />
+    ➼ check out my strawpage for a bit more info abt me- and maybe leave a gimmick? <br /> you can also sign my atabook! :3<br /><br />
+    ➼ desperately looking for limbus friends since I only have like. one or two ☹️ feel free to int! <br /><br />
+    ➼ w2i preferred since i am offtab most of the time <br /><br />
+    ➼ may be a little awkward at first but i am always open to making new friends! + <br />
+    if we share a similar interest, dont be afraid to ask for my discord idc 😋 <br /><br />
     ➼ lalalalalala
     <br /><br />
  ★
