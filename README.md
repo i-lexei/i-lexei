@@ -2,13 +2,17 @@
 
 <p align="center">
   <sub> <i>
-    $${\color{lightgreen}“Like \space I \space said, \space anyone \space would \space like \space him. \space And \space  meanwhile, \space he \space liked \space me \space  because... \space ...he’s \space just \space that \space nice. \space It’s \space not \space like \space anyone \space else \space would \space do \space the \space same.”}$$
+    $${\color{blue}»You've \space changed \space your \space own \space fate, \space Sinclair.«}$$
     <br />
-    $${\color{#ed231c}“I’m \space pretty \space sure \space that’s \space not \space true. \space I \space like \space you.”}$$
+    $${\color{blue}»Right \space now, \space you're \space neither \space a \space coward \space nor \space a \space hero. \space But \space you've \space still \space yet \space to \space let \space go \space of \space your \space fears \space completely.«}$$
     <br />
-    $${\color{lightgreen}“...No, \space I \space mean \space romantically.”}$$
+    $${\color{blue}»I've \space said \space it \space before, \space haven't \space I? \space “When \space you \space fear \space someone...”«}$$
     <br />
-    $${\color{#ed231c}“Yeah.”}$$
+    $${\color{#8b9c15}»“That's \space because... \space you \space gave \space them \space the \space power \space to \space have \space control \space over \space you...”«}$$
+    <br />
+    $${\color{blue}»That’s \space right. \space And \space I… \space don’t \space want \space anyone \space else \space to \space domineer \space over \space you.«}$$
+    <br />
+    $${\color{blue}»Which \space is \space why \space I \space got \space rid \space of \space that \space Kromer.«}$$
     <br /> <br />
   </sub> </i>
       ★<br />
