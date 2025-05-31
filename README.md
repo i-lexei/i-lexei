@@ -1,7 +1,7 @@
 
 
 <p align="center">
-  <sub> <i>
+  <!--<sub> <i>
     $${\color{blue}»You've \space changed \space your \space own \space fate, \space Sinclair.«}$$
     <br />
     $${\color{blue}»Right \space now, \space you're \space neither \space a \space coward \space nor \space a \space hero. \space But \space you've \space still \space yet \space to \space let \space go \space of \space your \space fears \space completely.«}$$
@@ -15,7 +15,7 @@
     $${\color{blue}»Which \space is \space why \space I \space got \space rid \space of \space that \space Kromer.«}$$
     <br /> <br />
   </sub> </i>
-      ★<br />
+      <br /> -->
   <img src="https://i.ibb.co/4zw0dph/Untitled37-20250420161320.png"/>
   <br />
   ·͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙ ·͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙ ·͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙ 
