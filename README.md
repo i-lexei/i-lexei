@@ -47,5 +47,10 @@
   <br /> <br /> <br />
   ☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆ ☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆<br />
   <sub>✿credits: sinmllk, lemon_mango1 (?), st4ngray, HiKleo69609, aamx1i✿</sub>
-  
+<br /><br />
+<B>// (LIMBUS COMPANY CANTO 7 SPOILERS)</B> (credits: cheromo159)
+<br />
+
+https://github.com/user-attachments/assets/cd874299-e6f3-47d2-aa00-4c28562b8c9a
+
 </p>
