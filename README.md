@@ -1,7 +1,7 @@
 
 
 <p align="center">
-  <!--<sub> <i>
+  <sub> <i>
     $${\color{blue}»You've \space changed \space your \space own \space fate, \space Sinclair.«}$$
     <br />
     $${\color{blue}»Right \space now, \space you're \space neither \space a \space coward \space nor \space a \space hero. \space But \space you've \space still \space yet \space to \space let \space go \space of \space your \space fears \space completely.«}$$
@@ -15,7 +15,7 @@
     $${\color{blue}»Which \space is \space why \space I \space got \space rid \space of \space that \space Kromer.«}$$
     <br /> <br />
   </sub> </i>
-      <br /> -->
+      <br /> 
   <img src="https://i.ibb.co/4zw0dph/Untitled37-20250420161320.png"/>
   <br />
   ·͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙ ·͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙ ·͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙⁺˚*•̩̩͙✩•̩̩͙*˚⁺‧͙ 
@@ -28,7 +28,7 @@
     ➼ do not copy my skins + pls ask for inspo! <br /><br />
     ➼ c+h is very very welcome!! i love cuddles!!!! <br /><br />
     ➼ check out my strawpage for a bit more info abt me- and maybe leave a gimmick? <br /> you can also sign my atabook! :3<br /><br />
-    ➼ looking for project moon friends!! whisper me to join a projmoon server made by me :D <br /><br />
+    ➼ looking for project moon friends!! whisper me to join a projmoon discord server made by me :D <br /><br />
     ➼ w2i preferred since i am offtab most of the time <br /><br />
     ➼ may be a little awkward at first but i am always open to making new friends! + <br />
     if we share a similar interest, dont be afraid to ask for my discord idc 😋 <br /><br />
