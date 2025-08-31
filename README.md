@@ -29,7 +29,7 @@
   <p align="center"> <img align="center" width="450" src="https://github.com/user-attachments/assets/5c0ede6d-d13d-4bfc-bf9d-34ac9e58beb3"> </p>
 <p align="center"> <img align="center" width="700" src="https://github.com/user-attachments/assets/1427ca56-2d57-423a-a902-5cea317990a9"> </p>
 <br /><br />
-<p align="center"> <img align="center" src="https://github.com/user-attachments/assets/4d25d73a-0375-4d75-99ea-5dd4534e79d2"> <sub>credits: chikn_fryd, rexhouse_, realifesabito, kuqii_, rentry.co/crusher</sub> </p>
+<p align="center"> <img align="center" src="https://github.com/user-attachments/assets/4d25d73a-0375-4d75-99ea-5dd4534e79d2"> <sub>credits: _lifff_, chikn_fryd, rexhouse_, realifesabito, kuqii_, rentry.co/crusher</sub> </p>
 
 
 
