@@ -16,7 +16,7 @@
 <br /> <img align="center" src="https://github.com/user-attachments/assets/97b94fca-f010-4385-80ab-84bc2fe8b67d"> — current interests i have are <b>utdr</b>, minecraft, roblox, and project moon games!
 <br /> <img align="center" src="https://github.com/user-attachments/assets/d84749d4-f6c0-483d-a835-ff030d61dbe2"> — c+h is VERY welcome!! <b>I LOVE CUDDLES</b> they make me happy so no need to ask!
 <br /> <img align="center" src="https://github.com/user-attachments/assets/c1d6e8b4-8c94-4f10-9db8-5b73fb1e6199"> — <b>w2i preferred</b> to get my attention since i am offtab most of the time
-<br /> <img align="center" src="https://github.com/user-attachments/assets/88614b7e-3dd0-4fff-ab0b-07d1c7559516"> — i block/hide semi-freely so dont be weird pls
+<br /> <img align="center" src="https://github.com/user-attachments/assets/88614b7e-3dd0-4fff-ab0b-07d1c7559516"> — i block/hide semi-freely so dont be weird pls ; PROSHIP DNI
 <br /> <img align="center" src="https://github.com/user-attachments/assets/36c87568-2a2d-410a-a9b1-5c35941192b2"> — dont be afraid to interact with me esp if im following you on github or if you're on my friends list on pt :) 
 <br /> <img align="center" src="https://github.com/user-attachments/assets/e21b2894-829f-46bc-9886-a5798cfa2780"> — im friendly i swear i can just be a bit awkward at first,,, im always open to making new friends!
 <br /><br /></p>
