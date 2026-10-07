@@ -36,13 +36,15 @@ ${\color{#86B3BA}{any}}
 \hspace{10px}
 {\color{#6893B1}{⺌}}
 \hspace{10px}
-{\color{#638FB0}{i}}
+{\color{#638FB0}{18yrs}}
 \hspace{10px}
-{\color{#5A85AD}{am}}
+{\color{#5A85AD}{:}}
 \hspace{10px}
-{\color{#4B76A9}{so}}
+{\color{#4B76A9}{under}}
 \hspace{10px}
-{\color{#3761A3}{whimsy!}}$
+{\color{#3761A3}{16}}
+\hspace{10px}
+{\color{#3761A3}{iwc}}$
 
 ${\color{#86B3BA}{HUGE}}
 \hspace{10px}
