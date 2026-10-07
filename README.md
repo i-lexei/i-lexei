@@ -1,4 +1,9 @@
-<div align="center">        
+<div align="center">  
+
+<details>
+  <summary>  </summary>
+         (might not be readable on mobile)
+</details>
 
 <div align="center">
 
